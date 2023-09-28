@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **MEAN STACK**
 
-- 📫 How to reach me **sahilpawar11204@gmail.com**
+- 📫 How to reach me **twitter-*@Ksja30205350*
 
 - ⚡ Fun fact **majaak accha kar leta hoon**
 
